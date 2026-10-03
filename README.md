@@ -1,4 +1,3 @@
-<img width="1199" height="231" alt="image" src="https://i.pinimg.com/1200x/38/d2/d8/38d2d8f7f6f010303119a1898e95e719.jpg" />
 
 <p align="center">Other sites and this in progress
 
