@@ -1,6 +1,6 @@
 
 <p align="center">Other sites and this in progress (i'm so sorry if i'm awkward, i just don't know how to communicate)
-
+<p align="center"> thank you for being a victim of my shallow emotions
 
 
 <p align="center">
